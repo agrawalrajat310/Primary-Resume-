@@ -1,2 +1,2 @@
 # Portfolio
-RAJAT-AGRAWAL
+RAJAT AGRAWAL
